@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAMA951217HMCSRD06
+CAMA951217HMCSRD06
